@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MRSOURAVEL
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning nothiung
+- 🌱 I’m currently learning nothiing.
 - 💞️ I’m looking to collaborate on non.
 - 📫 How to reach me non.
 
